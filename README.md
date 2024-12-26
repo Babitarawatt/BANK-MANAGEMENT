@@ -88,10 +88,10 @@ For any queries or suggestions, feel free to reach out:
 
 Stay connected on LinkedIn for updates, networking, and more!
 
-[![LinkedIn Icon](https://upload.wikimedia.org/wikipedia/commons/0/01/LinkedIn_Logo_2013.svg)](https://www.linkedin.com/in/yourprofile/)
 
-👉 **Connect with me on LinkedIn**: www.linkedin.com/in/
-babita-rawat-b2bb08290
+🌐
+👉 **Connect with me on LinkedIn**:   
+www.linkedin.com/in/babita-rawat-b2bb08290
 
 
 ---
